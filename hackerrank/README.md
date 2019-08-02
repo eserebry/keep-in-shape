@@ -1,0 +1,1 @@
+I am motivating myself to always learn
